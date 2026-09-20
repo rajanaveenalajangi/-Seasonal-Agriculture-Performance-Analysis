@@ -1,0 +1,1 @@
+[Seasonal_Agriculture_Performance_Analysis_README.pdf](https://github.com/user-attachments/files/32436873/Seasonal_Agriculture_Performance_Analysis_README.pdf)
